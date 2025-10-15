@@ -1,1 +1,1 @@
-# tiktok-affiliate
+# TikTok Affiliate
